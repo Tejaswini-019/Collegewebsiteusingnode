@@ -1,0 +1,8 @@
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/3390a2bf-cf7b-4f26-9bc0-69023b20e317)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/d2ff1d26-54ef-407c-8bc6-8a7827c2be9e)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/5d205d38-e402-4e3c-9d49-24ab786ff240)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/418800bb-3cd3-4266-be97-ffc9780bcfb5)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/4b716a02-a315-4492-9a58-5db550bb7cd2)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/ff9ae93b-09bc-4073-8cbd-40603f339448)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/feda5dc1-0fe0-4fe4-b9dc-78634895b21b)
+![image](https://github.com/Tejaswini-019/Collegewebsiteusingnode/assets/113604656/e7679fc0-cc0f-422a-bfa4-1e2edf1f2377)
